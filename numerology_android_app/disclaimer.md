@@ -4,7 +4,7 @@
 
 ##### Please read this disclaimer (“disclaimer”) carefully before using this “numerology” application.
 
-##### All information showcased in this application is for information purpose. It is not intended as a substitute for professional advice. Should you decide to act upon any information provided by this application you do so at your own risk.
+##### All information showcased in this application is for information purpose only. It is not intended as a substitute for professional advice. Should you decide to act upon any information provided by this application you do so at your own risk.
 
 ##### While the information on this application has been verified to the best of our abilities, we cannot guarantee that there are no mistake or errors.
 
